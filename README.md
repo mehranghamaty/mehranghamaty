@@ -2,6 +2,6 @@ Hello and welcome!
 
 I tend not to share too much code, hope that doesn't bother you!
 
-I also think it's kind of weird to stalk people online ൠ, unless you are trying to work with me. 
+I also think it's kind of weird to stalk people online. 
 
-In which case creepy away!
+Unless you are trying to work with me, in which case creepy away 🙈!
